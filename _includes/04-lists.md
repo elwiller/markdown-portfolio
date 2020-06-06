@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+- Kansas City Royals baseball
+- Kansas Jayhawks basketball
+- Kansas City Chiefs football
