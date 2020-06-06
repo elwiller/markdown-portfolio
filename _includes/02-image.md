@@ -1,0 +1,1 @@
+![Image of Eric Willer](https://scontent.fmkc1-1.fna.fbcdn.net/v/t1.0-1/p200x200/16997742_1417815818239671_9046799883865740947_n.jpg?_nc_cat=111&_nc_sid=dbb9e7&_nc_oc=AQlyqDpvdFgR8H90d18PSpUEk78Gl6ei5QVzBJ5G6PcazW0scQ8G5D-KBS9XMWzWA7k&_nc_ht=scontent.fmkc1-1.fna&_nc_tp=6&oh=de464125d5e26991745095c0b1864834&oe=5F00CF66)
